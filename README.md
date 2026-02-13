@@ -137,97 +137,101 @@ Algo estava espalhado por toda parte. O quê? Tampouco precisava ser dito.
 「———」
 
 
-　生きているのは自分だけなのだと理解して、屍山血河に埋もれた少女は声なき絶叫をあげていた。
+Ao compreender que a única viva era ela, a garota soterrada sob uma montanha de cadáveres e um rio de sangue soltava um grito sem voz.
 
-　炎上する鋼鉄の暴力装置。彼女らが最後の戦場として臨んだ戦艦は、今や巨大な棺桶と化していた。
+O instrumento de violência de aço ardia em chamas. O navio de guerra que haviam escolhido como último campo de batalha agora não passava de um gigantesco caixão.
 
-　燃えているのは艦だけではない。彼方に見える陸地もまた、紅蓮の業火に包まれている。
+E não era só ele que queimava.
+A terra distante também estava envolta nas labaredas carmesins do fogo kármico.
 
-　海は愉悦にせせら笑う魔王の〈貌〉《かお》であるかのごとく、さらなる絶望を与えてやろうと不気味にうねり、鳴動している。
+O mar ondulava e rugia de modo sinistro, como se fosse o 〈rosto〉《face》 de um rei demônio gargalhando em deleite, disposto a conceder ainda mais desespero.
 
+Não havia nada. Nada ali que pudesse ser chamado de esperança.
 
-　何一つ、何一つとしてここに希望的なものはない。終末を秒読みに控えた刹那的な凪の中、それを見届ける羽目となった少女の心胆はいかばかりか。
+Na calmaria efêmera que antecede a contagem regressiva do fim, que peso esmagava o coração daquela garota obrigada a testemunhar tudo aquilo?
 
-　敗軍の将の一人とはいえ、その責を一身に負えるほど彼女は強い心の持ち主ではない。
+Embora fosse uma das líderes do exército derrotado, ela não possuía um coração forte o suficiente para suportar sozinha tal responsabilidade.
 
-　本来なら草花を愛で、菓子を焼き、移ろう季節の中、小鳥のさえずりに淡く微笑む可憐な乙女だ。何処にでもいるただの少女だ。
+Na verdade, ela era apenas uma donzela delicada que gostava de flores, que assava doces e que, nas estações que mudam, sorria suavemente ao ouvir o canto dos pássaros. Uma garota comum.
 
-　それが戦場――しかも人智を超えた魔の域で、折れ砕ける瀬戸際に踏みとどまることが出来たのは、他ならぬ情の力あったればこそ。
+E ainda assim, naquele campo de batalha, mais do que isso, numa região demoníaca que transcende a razão humana, ela conseguiu permanecer à beira de se partir e se despedaçar apenas por causa do poder do afeto.
 
+Porque tinha amigos. Porque abrigava amor. Porque queria proteger aquilo que amava.
 
-　友がいて、愛を抱き、それを守りたいと思えばこそ彼女は立つことが出来ていた。そうした想いを鎧うことで、絶望を撥ね退ける意志の光を守っていた。
+Revestindo-se desses sentimentos como se fossem uma armadura, ela protegia a luz da vontade que repele o desespero.
 
-　しかし今は、それがない。ゆえに少女は立ち上がれない。
+Mas agora… isso não existe mais.
+Por isso ela não consegue se levantar.
 
-　守るべきものに守られなければ、彼女は弱く、無力なのだ。
+Se não for protegida por aquilo que deveria proteger, ela é fraca. Impotente.
 
+――e, ainda assim, ela 〈for〉《 、》〈te〉《 、》〈men〉《 、》〈te〉《 、》〈acre〉《 、》〈di〉《 、》〈ta〉《 、》〈va〉《 、》〈nis〉《 、》〈so〉《 、》.
 
-　――と、〈強〉《 、》〈く〉《 、》〈信〉《 、》〈じ〉《 、》〈た〉《 、》〈が〉《 、》〈っ〉《 、》〈て〉《 、》〈い〉《 、》〈る〉《 、》。
-
-　〈こ〉《 、》〈の〉《 、》〈状〉《 、》〈況〉《 、》〈を〉《 、》〈あ〉《 、》〈る〉《 、》〈種〉《 、》〈の〉《 、》〈■〉《 、》〈■〉《 、》〈で〉《 、》〈あ〉《 、》〈る〉《 、》〈な〉《 、》〈ど〉《 、》〈と〉《 、》、〈思〉《 、》〈っ〉《 、》〈て〉《 、》〈は〉《 、》〈い〉《 、》〈な〉《 、》〈い〉《 、》〈し〉《 、》〈認〉《 、》〈め〉《 、》〈て〉《 、》〈は〉《 、》〈い〉《 、》〈け〉《 、》〈な〉《 、》〈い〉《 、》。
-
-
-　だから、むしろ、このまま順当に終わりを迎えるのが幸せであるなんて……
-
-　断じて考えては、
-い
-け
-な
-い。
-
-「〈Sancta Maria ora pro nobis〉《さんたまりや うらうらのーべす》
-　〈Sancta Dei Genitrix ora pro nobis〉《さんただーじんみちびし うらうらのーべす》」
+〈si〉《 、》〈tu〉《 、》〈a〉《 、》〈ção〉《 、》〈se〉《 、》〈ja〉《 、》〈um〉《 、》〈cer〉《 、》〈to〉《 、》〈ti〉《 、》〈po〉《 、》〈de〉《 、》〈■〉《 、》〈■〉《 、》.
 
 
-　なぜなら、彼女は知っているのだ。
+melhor, que seria até felicidade simplesmente chegar ao fim assim, como manda o curso natural das coisas…
 
-　正義大儀は粉砕され、外道鬼道が跋扈する今ならばこそ。
+Isso, de maneira alguma,
+não
+po
+de
+ser
+pensado.
 
-　神は幸福を容易に与えてはくれないが、悪魔は実に気前よく、自慢の商品を喜び勇んで持ってくるに違いないと。
-
-「〈Sancta Virgo virginum ora pro nobis〉《さんたびりごびりぜん うらうらのーべす》
-　〈Mater Christi ora pro nobis〉《まいてろきりすて うらうらのーべす》　〈Mater Divinae Gratiae ora pro nobis〉《まいてろににめがらっさ うらうらのーべす》」
-
-
-　ぽつ、ぽつと、見上げた虚空から降り注いでくるものがある。
-
-　それは黒く、粘った泥のようで、雨には違いないが水ではない。
-
-　大の字のまま動けない少女を濡らしていくその雫は、冷たくなく熱いのだ。まるで強酸性の劇薬でもあるかのように、瀕死の彼女を鞭打つがごとく焦がしていく。
-
-　天に穿たれた孔から滴る、これは地の底に溜まった毒の祝福。
-
-　血と精液と糞尿が、憎悪と怨嗟と苦痛によって混ぜ合わされた地獄の歓喜。
-
-　ここに美しく演出される絶望を前にして、欲情を隠せない畜生が垂れ流す腐臭にまみれた涎だった。
+「〈Sancta Maria ora pro nobis〉《Santa Maria, rogai por nós》
+　〈Sancta Dei Genitrix ora pro nobis〉《Santa Mãe de Deus, rogai por nós》」
 
 
-「〈Mater purissima ora pro nobis〉《まいてろぶりんしま うらうらのーべす》
-　〈Mater castissima ora pro nobis〉《まいてろかすてりんしま うらうらのーべす》」
+Porque ela sabe.
+
+Agora que a justiça e as grandes causas foram pulverizadas, agora que os caminhos heréticos e demoníacos vagueiam livremente.
+
+Ela sabe que os deuses não concedem felicidade com facilidade, mas os demônios, generosos demais, com certeza virão jubilosos oferecer, orgulhosos, a sua mercadoria.
+
+「〈Sancta Virgo virginum ora pro nobis〉《Santa Virgem das virgens, rogai por nós》
+　〈Mater Christi ora pro nobis〉《Mãe de Cristo, rogai por nós》　〈Mater Divinae Gratiae ora pro nobis〉《Mãe da Divina Graça, rogai por nós》」
 
 
-　そのおぞましさを、彼女は戦慄と共に感じていたから息を呑んだ。見上げた孔の向こう側へ、恥も外聞もなく懇願する。
+　Gota… gota… Algo começa a cair do vazio que ela encara.
 
-「や、め、て……！」
+É negro, espesso como lama pegajosa. É chuva, sem dúvida, mas não é água.
 
+As gotas que encharcam a garota, estendida de braços e pernas abertos, incapaz de se mover, não são frias. São quentes.
+Quentes, como um ácido corrosivo de altíssima potência, queimando-a como se a açoitassem, castigando seu corpo à beira da morte.
 
-　絞り出す声は狂気に近いほど切迫していた。
+Pingando do buraco perfurado no céu, é a bênção venenosa acumulada no fundo da terra.
 
-　やめて来ないで見せないで――お願いだからこのまま静かに終わらせて。
+Sangue, sêmen, fezes e urina, misturados por ódio, rancor e dor, a exultação do inferno.
 
-　勝ったのはそちらでしょう。
-
-　だったらもういいじゃない。
-
-　これ以上いったい何を、ああ分かっているだけに恐ろしい。
-
-「そんなに……」
+Diante do desespero belamente encenado ali, aquilo nada mais era do que a saliva pútrida, fedendo a podridão, que uma besta incapaz de conter sua excitação deixa escorrer.
 
 
-　黒い〈驟雨〉《しゅうう》に溺れていく中、懺悔にも似た声が漏れた。
+「〈Mater purissima ora pro nobis〉《Mãe puríssima, rogai por nós》
+　〈Mater castissima ora pro nobis〉《Mãe castíssima, rogai por nós》」
 
 
-「そんなに私が、憎いというの？」
+　Sentindo aquele horror abjeto atravessá-la junto com um arrepio profundo, ela prendeu a respiração.
+
+E para além do buraco que encarava no céu, sem qualquer resquício de orgulho ou pudor, implorou.
+
+「Pa… ra…!」
+
+A voz que arrancou do fundo do peito era tão desesperada que beirava a insanidade.
+
+Pare. Não venha. Não me mostre isso——Por favor… deixe que tudo termine assim, em silêncio.
+
+Quem venceu foi você, não foi?
+
+Então já não basta?
+
+O que mais ainda pretende——ah… é justamente porque eu sei a resposta que isso é tão aterrador.
+
+「Tanto assim……」
+
+Afogando-se na chuva torrencial negra, deixou escapar uma voz que mais parecia uma confissão.
+
+「Tanto assim você… me odeia?」
 
 
 　■■■■――――
