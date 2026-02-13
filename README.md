@@ -70,77 +70,71 @@ Eu sei que é uma traição cruel. Dizer “torne-se forte” e depois sofrer qu
 
 E é justamente aí que reside a discrepância absoluta e incontestável entre nós.
 
-私は女で、彼は男。同じ人間でも、根本の質が異なる異性の違い。
+Eu sou mulher, e ele é homem. Mesmo sendo ambos humanos, existe uma diferença entre os sexos, uma diferença na qualidade fundamental que nos compõe.
 
-〈男〉《かれ》の身を焦がす狂おしい飢餓の深さを、〈女〉《わたし》はどうしたって同等に感じることが出来ないから……
+A profundidade daquela fome enlouquecida que queima o corpo de 〈homem〉《ele》… 〈mulher〉《eu》 jamais poderia senti-la na mesma intensidade, por mais que tentasse.
 
+Dizer que eu gosto de homens fortes… não era algo que eu deveria ter dito, acontecesse o que acontecesse.
 
-強い男の人が好きだなんて、何があっても言ってはいけなかったのだ。
+Sim, até hoje eu me arrependo.
 
+A ponto de querer morrer. A ponto de pensar que, se pudesse voltar atrás, nem precisaria da minha própria vida.
 
-そう、今でも絶えず悔いている。
+Enlouquecidamente… a um nível que um homem jamais poderia compreender…
 
-死にたいほどに。やり直せるなら命も要らないと思うほどに。
+E agora, atormentada por um turbilhão interminável de remorso, a garota emergiu do sonho.
 
-男の人では、どうしたって理解できないほど狂おしく……
-
-　そして今、尽きせぬ悔恨の渦に苛まれながら少女は夢から浮上した。
-
-　いいや、もしかしたら、すべてが夢なのかもしれない。
+Ou talvez… talvez tudo ainda seja apenas um sonho.
 
 「――――――――」
 
+O primeiro sentimento que a envolveu foi confusão. Por quê? Como? Onde eu estou… o que aconteceu?——a incapacidade de compreender a própria situação.
 
-　初めに抱いた思いは困惑。なぜどうして、自分はいったい何処で何を――という現状の不理解。
+Em seguida veio a dor. Não uma dor emocional, mas uma dor pura, brutal, que gritava no corpo.
 
-　次いで感じたのは、心よりも身体に訴える純粋な苦痛だった。
+「Ah—…!」
 
-「ぁ、―――っ、……」
+O corpo inteiro urrava. Era impossível discernir, num instante, onde doía ou como doía, cada parte parecia entoar um coro de agonia.
 
+E não era um único tipo de dor. Eram muitas.
 
-　全身、何処がどうとは咄嗟に判断できないほど、身体中のいたるところが悲鳴の合唱をあげている。
+Perfurações. Cortes. Contusões. Queimaduras. Alguns ossos estavam claramente quebrados. O gosto de sangue que subia pela garganta anunciava que até as 〈órgãos internos〉《dentro》 não haviam saído ilesos.
 
-　身を焼く痛みの種類もまた、一つではない多様なものに溢れていた。
+Em termos simples: seu corpo estava em farrapos. Mesmo sob uma dor intensa o bastante para fazê-la querer gritar e rolar no chão, seu corpo simplesmente não obedecia.
 
-　それは刺傷であり、裂傷であり、打撲傷であり火傷の痛み。骨の幾つかは間違いなく折れていて、喉からこみ上げてくる血の味が、〈内臓〉《なか》も無事ではないことを告げている。
+Mas foi justamente essa tortura que serviu de gatilho, forçando-a a reconhecer a realidade.
 
-　平たく言えば満身創痍だ。今すぐ絶叫し、転げ回りたいほどの激痛に襲われながらも、身体はまったく思うとおりに動かない。
+「Ah…
+Eu… perdi…」
 
-　だが、その責め苦こそが呼び水となり、少女に現実を認識させた。
+Ali, ela chegou à conclusão: fora derrotada.
 
-「あぁ……
-私、負けたんだ……」
+Derrotada por quê, isso ela não diz. Porque para ela era óbvio demais para precisar ser nomeado.
 
+Mais do que sua própria derrota, outra coisa a inquietava agora.
 
-　自分は敗北したのだと、ここに答えを導き出す。
+「Todo… mundo…
+Onde… onde vocês estão?」
 
-　何に、とは言わない。それは彼女にとって自明のことであったから。
+Ela perdeu, isso estava claro.
+Mas e os outros?——sua pergunta se lançou ao vazio.
 
-　そんな己のことよりも、今は他のことが気になったのだ。
+Não conseguia se levantar, então não podia andar. Sua voz não tinha força.
+Não conseguia sequer girar o 〈pescoço〉《cabeça inclinada》 para olhar ao redor.
 
-「みん、な……
-みんな、どこ？」
+Restava-lhe apenas encarar o céu e deixar escapar uma voz que parecia prestes a 〈desatar-se〉《desfiar-se》. Era tudo o que conseguia fazer.
 
+Normalmente, não seria possível confirmar nada assim. Mas, infelizmente, aqui era diferente.
 
-　自分は負けた。それは分かった。だが他は、と虚空に問う。
+Os deuses não concedem felicidade com facilidade. Já os demônios… são generosos demais, orgulhosos, fazem questão de exibir sua mercadoria.
 
-　立ち上がれないから歩けない。呼ばわる声にも力は篭らず、〈首〉《こうべ》を巡らせ周囲を見回すことさえ出来ずにいる。
+Mesmo sem poder ver, ela podia ouvir. Podia sentir o cheiro. Som e odor bastavam. A ruína transbordava naquele lugar a ponto de ser impossível não compreender.
 
-　だからただ宙を見上げて、今にも〈解〉《ほつ》れそうな声を漏らすのが精一杯。
+Algo estava queimando. O quê? Nem precisava perguntar.
 
-　それで何かを探り当て、確認するなど普通は出来ない道理だろうが、不幸にもここでは違った。
+Algo estava espalhado por toda parte. O quê? Tampouco precisava ser dito.
 
-　神は幸福を容易に与えてはくれないが、悪魔は実に気前よく、自慢の商品を喜び勇んで持ってくるものなのだ。
-
-　目で確認できなくても耳は聴こえる。鼻も利く。音と匂いの二つがあれば、容易く理解できるほどここには破滅が溢れていた。
-
-
-　燃えている。何が？　言うまでもない。
-
-
-　そこかしこに散らばっている。何が？　同じく言うまでもない。
-
-「っ――――」
+「———」
 
 
 　生きているのは自分だけなのだと理解して、屍山血河に埋もれた少女は声なき絶叫をあげていた。
